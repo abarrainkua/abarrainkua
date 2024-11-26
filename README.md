@@ -6,7 +6,7 @@ My name is Ainhize and I'm originally from a small town of the Basque Country.
 
 👩🏽‍💻 I am currently pursuing a PhD in Computer Science in the field of Algorithmic Fairness.
 
-🤩 I am passionate about technology, literature & art. 
+🤩 I am passionate about technology, literature, music & art. 
 
 🚲🌳 I love sports and being outdoors.
 
